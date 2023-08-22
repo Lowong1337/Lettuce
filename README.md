@@ -2,6 +2,8 @@
 
 ## [check this out](https://www.youtube.com/watch?v=F48N6cOHxas)
 
+## [Nice Flex](https://www.youtube.com/watch?v=KUqwPjXyBM0)
+
 ![1](https://media.discordapp.net/attachments/1127155311464169552/1127472775796359249/image.png?width=1108&height=559)
 
 ![2](https://media.discordapp.net/attachments/1127155311464169552/1127473739915866203/image.png) Nice Font Renderer
@@ -27,3 +29,7 @@
 ![12](https://cdn.discordapp.com/attachments/1127155311464169552/1138842641656721408/image.png) 🤔
 
 ![13](https://media.discordapp.net/attachments/1127155311464169552/1138850569201660014/image.png) 🤔
+
+![14](https://media.discordapp.net/attachments/988104728745484301/1138845856586551296/Discord_DkPn1zmB9r.png?width=1039&height=560)
+
+## See ya
