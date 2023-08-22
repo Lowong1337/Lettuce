@@ -32,4 +32,6 @@
 
 ![14](https://media.discordapp.net/attachments/988104728745484301/1138845856586551296/Discord_DkPn1zmB9r.png?width=1039&height=560)
 
+![15](https://media.discordapp.net/attachments/1127155311464169552/1143577079154217080/image.png) WTF
+
 ## See ya
